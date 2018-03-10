@@ -1,0 +1,1 @@
+# osa6a_teht
